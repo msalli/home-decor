@@ -9,3 +9,6 @@ List of places to buy furniture and home decor
 * [Chairish](https://www.chairish.com)
 * [Crate & Barrel](https://www.crateandbarrel.com)
 * [Lulu & Georgia](https://www.luluandgeorgia.com/)
+* [Rugs USA](https://www.rugsusa.com/)
+* [Serena & Lily](http://www.serenaandlily.com/)
+* [Wayfair](https://www.wayfair.com/)
