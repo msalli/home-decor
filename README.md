@@ -2,6 +2,7 @@
 List of places to buy furniture and home decor
 
 ## Home Decor
+* [Akron Street](https://www.akronstreet.com)
 * [All Modern](https://www.allmodern.com/)
 * [Anthropologie](https://www.anthropologie.com)
 * [Ballard Designs](http://www.ballarddesigns.com/)
