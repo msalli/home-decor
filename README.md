@@ -12,4 +12,5 @@ List of places to buy furniture and home decor
 * [Lulu & Georgia](https://www.luluandgeorgia.com/)
 * [Rugs USA](https://www.rugsusa.com/)
 * [Serena & Lily](http://www.serenaandlily.com/)
+* [The Citizenry](https://www.the-citizenry.com/)
 * [Wayfair](https://www.wayfair.com/)
