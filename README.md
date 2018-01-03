@@ -13,6 +13,7 @@ List of places to buy furniture and home decor
 * [Crate & Barrel](https://www.crateandbarrel.com)
 * [EQ3](http://eq3.com/us/en)
 * [Lulu & Georgia](https://www.luluandgeorgia.com/)
+* [One Kings Lane](https://www.onekingslane.com/)
 * [Rugs USA](https://www.rugsusa.com/)
 * [Serena & Lily](http://www.serenaandlily.com/)
 * [Structube](https://www.structube.com/)
