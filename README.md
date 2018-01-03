@@ -10,6 +10,7 @@ List of places to buy furniture and home decor
 * [Capsule](https://www.capsulehome.com/)
 * [CB2](https://www.cb2.com/)
 * [Chairish](https://www.chairish.com)
+* [Collectiv Co](https://collectivco.com/)
 * [Crate & Barrel](https://www.crateandbarrel.com)
 * [EQ3](http://eq3.com/us/en)
 * [Lulu & Georgia](https://www.luluandgeorgia.com/)
